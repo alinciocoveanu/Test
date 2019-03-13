@@ -1,1 +1,0 @@
-ia la moie petre
